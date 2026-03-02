@@ -1,1 +1,0 @@
-# PRIVACY_POLICY_FOR_DailyExpenseTracker
